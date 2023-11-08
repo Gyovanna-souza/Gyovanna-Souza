@@ -1,3 +1,2 @@
-# Welcome to my profile ✨
-# I'am Gyovanna!
+# Welcome to my profile, I'am Gyovanna✨.
 
